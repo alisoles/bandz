@@ -1,1 +1,23 @@
 # bandz
+
+ODE OH NEYAAAAAAAAA
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
